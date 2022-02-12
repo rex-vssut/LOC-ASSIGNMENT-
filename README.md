@@ -5,6 +5,6 @@ https://onlinegdb.com/V0PnAnM07
 https://onlinegdb.com/K3BvpXHLn
 https://onlinegdb.com/E8yPtBMe2
 practice qs:-
-
+https://onlinegdb.com/LQ4P5l2gt
 https://onlinegdb.com/nx6Z3iiko
 https://onlinegdb.com/FbruXM-0t
